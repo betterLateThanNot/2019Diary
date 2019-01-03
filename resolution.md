@@ -13,7 +13,7 @@
 ## 6.more skilled guitar player.
 
 
-### key word: self-discipline, productive life, get rid of phone and get up at 5am
+### key word: self-discipline, productive life, patient, get rid of phone and get up at 5am
 
 
 
